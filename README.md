@@ -1,1 +1,0 @@
-# shruthisridharshapiro.github.io
